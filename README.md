@@ -49,4 +49,4 @@ Contributions to the Mars Valor website are welcome! If you have any ideas, sugg
 
 We hope you enjoy exploring the Mars Valor website and the fascinating world of Mars exploration!
 
-If you have any questions or feedback, please don't hesitate to contact us @ bandsnco@gmail.com
+If you have any questions or feedback, please don't hesitate to contact us!
